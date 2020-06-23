@@ -13,3 +13,5 @@ Her real first name is Gytha.
 Quote:
 > When you break rules, break 'em good and hard.
 
+<img src="https://wiki.lspace.org/mediawiki/images/1/1d/Nannymine.jpg"/>
+
