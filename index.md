@@ -10,3 +10,6 @@ Her real first name is Gytha.
 * talkative
 * likes to drink
 
+Quote:
+> When you break rules, break 'em good and hard.
+
